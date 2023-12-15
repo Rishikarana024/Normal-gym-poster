@@ -1,1 +1,1 @@
-poster making
+poster-making
